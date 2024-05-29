@@ -7,3 +7,7 @@
 - E a cada tentando ser melhor
 
 - ## Caso queira, entre em contato pelo instagram @santxs_tobi
+
+![](https://media1.tenor.com/m/FSA1OtLtuNsAAAAC/shidou-ryusei-bllk.gif)
+
+
